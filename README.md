@@ -1,0 +1,1 @@
+# TrabalhoLucasSenkoski.github.iocurriculosenkoski.github.io
